@@ -12,5 +12,11 @@ Belgium
 
 France
 
-NewZealand (On-going)
+NewZealand 
+
+China (Planned)
+
+Malaysia (Planned)
+
+Australia (On-going)
 
